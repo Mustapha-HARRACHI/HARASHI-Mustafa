@@ -1,4 +1,4 @@
-# Hi, I'm HARACHI Mustapha 
+# Hi, I'm HARRACHI Mustapha 
 
 **Master's student in Data Science • Machine Learning Enthusiast**  
 
